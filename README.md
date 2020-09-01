@@ -28,7 +28,7 @@ script for analyzing data, conversations in WhatsApp groups
 
 ##### See Training 
 
-- 🔞 See Training 🎥 https://youtu.be/-EARzcnISog  🎥
+- 🔞 See Training 🎥 https://www.youtube.com/watch?v=0SUGy7lWT2Q  🎥
 
 ----------------------
 
